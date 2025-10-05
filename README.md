@@ -1,2 +1,0 @@
-# Anticipation
-Hakuna
